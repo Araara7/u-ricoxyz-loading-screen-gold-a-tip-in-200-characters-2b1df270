@@ -8,7 +8,7 @@ Entry for the [make.fun](https://make.fun/bounty/u-ricoxyz-loading-screen-gold-a
 
 ## The tip
 
-> Tip: your agent is pretending it understood the ticket on the first read. Give it a second — give yourself one too.
+> Tip: your agent understood the ticket on the first read. It's lying. Give it a second read — give yourself one too.
 
 115 characters, one line.
 
